@@ -49,7 +49,55 @@ Solución de ejercicios.
 
 
 
+
 5
 
 ![Image](https://github.com/user-attachments/assets/80d88130-bf13-46b8-85f2-69262183a1d9)
+
+
+
+
+
+
+
+6
+
+
+6.1
+
+![Image](https://github.com/user-attachments/assets/2ac59e62-165a-45c1-9ac0-5fb679b90c2b)
+
+
+
+
+
+
+
+
+
+
+
+
+6.2
+
+![Image](https://github.com/user-attachments/assets/0b9b9e27-d6ff-4d72-aaf3-de233675f1b7)
+
+
+
+6.4
+
+
+
+![Image](https://github.com/user-attachments/assets/fcb1830c-c8b3-4e17-8995-b91313941235)
+
+
+
+
+
+
+
+
+
+
+
 
