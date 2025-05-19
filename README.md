@@ -36,5 +36,20 @@ Solución de ejercicios.
 
 ![Image](https://github.com/user-attachments/assets/0ad84c30-5829-463f-96cf-279b5111fb0e)
 
+4
 
+4.1
+![Image](https://github.com/user-attachments/assets/700bc3f8-b2c2-44dd-8a06-9825c16d3fad)
+4.3
+![Image](https://github.com/user-attachments/assets/01d06c66-6f1b-48e1-8608-6c2e8ba6e318)
+4.4
+![Image](https://github.com/user-attachments/assets/e9633e89-6995-4646-955a-519aab344b39)
+4.5
+![Image](https://github.com/user-attachments/assets/629bd10f-3c03-4772-8902-d13c96c371c0)
+
+
+
+5
+
+![Image](https://github.com/user-attachments/assets/80d88130-bf13-46b8-85f2-69262183a1d9)
 
